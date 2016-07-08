@@ -1,4 +1,4 @@
 # Summary
 
-* DefiningSmallWonder
+* [DefiningSmallWonder](definingsmallwonder.md)
 
