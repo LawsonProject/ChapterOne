@@ -6,6 +6,6 @@ It was also following a very familiar formula for sitcoms: the “fish out of wa
 
 Remember “Wizards of Waverly Place?” That show followed some of the same tropes as “Small Wonder,” and it ran for a few years on the Disney Channel. I've always felt like the live-action sitcoms that have traditionally ran on the Disney Channel had nearly the same quality as the direct-to-syndication shows that I remember watching back when I was a kid. I think that the constant here is that they are profitable to produce. Back when “Small Wonder” was in production, however, they just didn't know how things would turn out. They were taking risks.
 * * *
-[ [Edit](https://midmichonline.quip.com/i2LUAjocQq44) | Discuss ]
+[ [Edit](https://midmichonline.quip.com/i2LUAjocQq44) ]
 
 
